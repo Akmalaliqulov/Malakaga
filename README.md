@@ -1,0 +1,2 @@
+# Malakaga
+Malaka dars uchun
